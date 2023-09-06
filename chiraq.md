@@ -31,4 +31,6 @@ Perry's death led to the 6400 block of South King Drive being renamed "O Block".
 Perry was suspected of killing Tooka
 6. The "STL/EBT" set also know as TookaVille or Tooka Gang, are made up of two Gangster Disciple sets who merged. They are a primarily African-American street gang that reside on the South Side of Chicago, most known to be around 63rd & St. Lawrence and 63rd & Eberhart. The two sets formed an alliance when a high-ranking member from STL also known as "C-BALL" began to get close with EBT members, the two sets decided to form together. The set has many different cliques and subsets as well like "TOOKA GANG" which was made to honor a deceased member of STL. They also have other cliques like "FBG" or "FLY BOY GANG" which is made of members like FBG Duck AKA Big Clout, FBG Young, FBG Dutchie, FBG Butta, and many more.
 7. **Fredo Santana** was dead at 27 because of sucking amount of drugs;
-8. 
+8. **DJ Kenn**https://www.youtube.com/watch?v=f8X4K-o2Z18 introduce himself  
+# 正文
+&nbsp; 芝加哥，drill的诞生之地，美国的第三大城市，风城，犯罪之都。 
