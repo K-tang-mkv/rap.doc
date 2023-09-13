@@ -33,4 +33,6 @@ Perry was suspected of killing Tooka
 7. **Fredo Santana** was dead at 27 because of sucking amount of drugs;
 8. **DJ Kenn**https://www.youtube.com/watch?v=f8X4K-o2Z18 introduce himself  
 # 正文
-&nbsp; 芝加哥，drill的诞生之地，美国的第三大城市，风城，犯罪之都。 
+&nbsp; 芝加哥，drill的诞生之地，美国的第三大城市，风城，犯罪之都。每年这里的凶杀案发生率甚至高于美
+军在伊拉克的伤亡人数，因此它又被称为“芝拉克”，芝加哥和伊拉克的结合。在这座城市，有超过11万的帮派成员，
+而警察的数量只有1万3千左右。芝加哥被划分为了77个社区，而其中帮派的数量就多达至少70个，他们分布在各个社区，
