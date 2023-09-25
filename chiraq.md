@@ -31,8 +31,14 @@ Perry's death led to the 6400 block of South King Drive being renamed "O Block".
 Perry was suspected of killing Tooka
 6. The "STL/EBT" set also know as TookaVille or Tooka Gang, are made up of two Gangster Disciple sets who merged. They are a primarily African-American street gang that reside on the South Side of Chicago, most known to be around 63rd & St. Lawrence and 63rd & Eberhart. The two sets formed an alliance when a high-ranking member from STL also known as "C-BALL" began to get close with EBT members, the two sets decided to form together. The set has many different cliques and subsets as well like "TOOKA GANG" which was made to honor a deceased member of STL. They also have other cliques like "FBG" or "FLY BOY GANG" which is made of members like FBG Duck AKA Big Clout, FBG Young, FBG Dutchie, FBG Butta, and many more.
 7. **Fredo Santana** was dead at 27 because of sucking amount of drugs;
-8. **DJ Kenn**https://www.youtube.com/watch?v=f8X4K-o2Z18 introduce himself  
+8. **DJ Kenn**https://www.youtube.com/watch?v=f8X4K-o2Z18 introduce himself 
+9. **Parkway Gardens** Apartment Homes is a 694-unit privately-owned apartment complex located on the border of Woodlawn and Washington Park. Chicago's Woodlawn and Washington Park community areas are located on the South Side of Chicago, Illinois.
+10. **WoodLwan** [location map](https://www.google.com/maps/place/Woodlawn,+Chicago,+IL/@41.7746109,-87.6047847,15z/data=!4m6!3m5!1s0x880e291d6fe56ceb:0x83db3624ce86f256!8m2!3d41.78058!4d-87.5915351!16zL20vMDJqMzM2?entry=ttu)
+It is bounded by Lake Michigan to the east, 60th Street to the north, Martin Luther King Drive to the west, and 67th Street to the south. 
+11. **king louie** [music tony](https://www.youtube.com/watch?v=jQPrrYlDgDE) [I'm arrogant](https://www.youtube.com/watch?v=MtiXcl3-I4o)
 # 正文
-&nbsp; 芝加哥，drill的诞生之地，美国的第三大城市，风城，犯罪之都。每年这里的凶杀案发生率甚至高于美
-军在伊拉克的伤亡人数，因此它又被称为“芝拉克”，芝加哥和伊拉克的结合。在这座城市，有超过11万的帮派成员，
-而警察的数量只有1万3千左右。芝加哥被划分为了77个社区，而其中帮派的数量就多达至少70个，他们分布在各个社区，
+&nbsp; 芝加哥，drill的诞生之地，美国第三大城市，风城，犯罪之都。每年这里的凶杀案发生率甚至高过美
+军在伊拉克的伤亡人数，因此它又被称为“芝拉克”。在这座城市，有超过11万的帮派成员，
+而警察的数量却只有1万3千左右。芝加哥被划分为了77个社区，而其中帮派的数量就多达至少70个，他们分布在各个社区之中，
+Drill 就起源于芝加哥南部的第42区，[woodlawn](https://en.wikipedia.org/wiki/Woodlawn,_Chicago)，
+woodlwan横跨第60街到第67街, 这里帮派林立，其中来自Dro city的年轻人，Pac Man，在2010年发布了一首单曲，名为《its a drill》这就是Drill一切的开端，[放歌](https://www.youtube.com/watch?v=mdOWY_eAhsU), 而传奇人物pac man也在发布该首单曲的同一年遭遇谋杀不幸离世, 年仅25岁， [king louie 采访](https://www.youtube.com/watch?v=H4KOX0XsIrM)，pac man离世之后，
