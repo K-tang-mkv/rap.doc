@@ -2,7 +2,8 @@
 
 ### beats for videos
 * [dis aint what u want](https://www.youtube.com/watch?v=TybFtK6VTVo)
-
+* [live and die in chicago](https://www.youtube.com/watch?v=R5HT9bZHW4o&pp=ygUkbGl2ZSBhbmQgZGllIGluIGNoaWNhZ28gaW5zdHJ1bWVudGFs)
+* 
 ### Resources
 1. **Tookaville** is a nickname for the Tooka Gang, a Gangster Disciples set in Chicago, Illinois. The gang is also known as Saint Lawrence Boys/Eberhart (STL/EBT). The gang adopted the name in honor of Shondale "Tooka" Gregory, a 15-year-old who was murdered. 
 Tookaville is located at 63rd Street and St. Lawrence. 
@@ -35,10 +36,14 @@ Perry was suspected of killing Tooka
 9. **Parkway Gardens** Apartment Homes is a 694-unit privately-owned apartment complex located on the border of Woodlawn and Washington Park. Chicago's Woodlawn and Washington Park community areas are located on the South Side of Chicago, Illinois.
 10. **WoodLwan** [location map](https://www.google.com/maps/place/Woodlawn,+Chicago,+IL/@41.7746109,-87.6047847,15z/data=!4m6!3m5!1s0x880e291d6fe56ceb:0x83db3624ce86f256!8m2!3d41.78058!4d-87.5915351!16zL20vMDJqMzM2?entry=ttu)
 It is bounded by Lake Michigan to the east, 60th Street to the north, Martin Luther King Drive to the west, and 67th Street to the south. 
-11. **king louie** [music tony](https://www.youtube.com/watch?v=jQPrrYlDgDE) [I'm arrogant](https://www.youtube.com/watch?v=MtiXcl3-I4o)
+11. **king louie** [music tony](https://www.youtube.com/watch?v=jQPrrYlDgDE) [I'm arrogant](https://www.youtube.com/watch?v=MtiXcl3-I4o) [chiraq Drillinois](https://www.youtube.com/watch?v=AA4YUC4GOhQ) [king louie story](https://www.youtube.com/watch?v=fPN6E8Coy4M)
+12. ![gang map](./assets/gang map.png)
+
+
 # 正文
 &nbsp; 芝加哥，drill的诞生之地，美国第三大城市，风城，犯罪之都。每年这里的凶杀案发生率甚至高过美
 军在伊拉克的伤亡人数，因此它又被称为“芝拉克”。在这座城市，有超过11万的帮派成员，
 而警察的数量却只有1万3千左右。芝加哥被划分为了77个社区，而其中帮派的数量就多达至少70个，他们分布在各个社区之中，
 Drill 就起源于芝加哥南部的第42区，[woodlawn](https://en.wikipedia.org/wiki/Woodlawn,_Chicago)，
-woodlwan横跨第60街到第67街, 这里帮派林立，其中来自Dro city的年轻人，Pac Man，在2010年发布了一首单曲，名为《its a drill》这就是Drill一切的开端，[放歌](https://www.youtube.com/watch?v=mdOWY_eAhsU), 而传奇人物pac man也在发布该首单曲的同一年遭遇谋杀不幸离世, 年仅25岁， [king louie 采访](https://www.youtube.com/watch?v=H4KOX0XsIrM)，pac man离世之后，
+woodlwan横跨第60街到第67街, 这里帮派林立，其中来自Dro city的年轻人，Pac Man，在2010年发布了一首单曲，名为《its a drill》这就是Drill一切的开端，[放歌](https://www.youtube.com/watch?v=mdOWY_eAhsU), 而传奇人物pac man也在发布该首单曲的同一年遭遇谋杀不幸离世, 年仅25岁， [king louie 采访](https://www.youtube.com/watch?v=H4KOX0XsIrM)，pac man“创造”了drill这个“词”，它代表杀戮与暴力，是芝加哥帮派生活的写实，但彼时drill音乐还未真正出现，直到2011年1月，同样来自dro city的年轻人King Louie，发布了个人首张mixtape，名为[《man up band up》](https://www.youtube.com/watch?v=mqh0O1ibAFE&t=231s), 这张mixtape融合了来自亚特兰大的制作人[Lex Luger](https://en.wikipedia.org/wiki/Lex_Luger_(record_producer))的beat style，Lex的制作风格偏向暗黑，以及极具攻击性，搭配上king Louie暴力的歌词，这标志着drill音乐真正意义上的诞生。[放歌]。</br>
+
