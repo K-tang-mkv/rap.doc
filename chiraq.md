@@ -32,13 +32,13 @@ Perry's death led to the 6400 block of South King Drive being renamed "O Block".
 Perry was suspected of killing Tooka
 6. The "STL/EBT" set also know as TookaVille or Tooka Gang, are made up of two Gangster Disciple sets who merged. They are a primarily African-American street gang that reside on the South Side of Chicago, most known to be around 63rd & St. Lawrence and 63rd & Eberhart. The two sets formed an alliance when a high-ranking member from STL also known as "C-BALL" began to get close with EBT members, the two sets decided to form together. The set has many different cliques and subsets as well like "TOOKA GANG" which was made to honor a deceased member of STL. They also have other cliques like "FBG" or "FLY BOY GANG" which is made of members like FBG Duck AKA Big Clout, FBG Young, FBG Dutchie, FBG Butta, and many more.
 7. **Fredo Santana** was dead at 27 because of sucking amount of drugs;
-8. **DJ Kenn**https://www.youtube.com/watch?v=f8X4K-o2Z18 introduce himself 
+8. **DJ Kenn** [introduce himself](https://www.youtube.com/watch?v=f8X4K-o2Z18)  
 9. **Parkway Gardens** Apartment Homes is a 694-unit privately-owned apartment complex located on the border of Woodlawn and Washington Park. Chicago's Woodlawn and Washington Park community areas are located on the South Side of Chicago, Illinois.
 10. **WoodLwan** [location map](https://www.google.com/maps/place/Woodlawn,+Chicago,+IL/@41.7746109,-87.6047847,15z/data=!4m6!3m5!1s0x880e291d6fe56ceb:0x83db3624ce86f256!8m2!3d41.78058!4d-87.5915351!16zL20vMDJqMzM2?entry=ttu)
 It is bounded by Lake Michigan to the east, 60th Street to the north, Martin Luther King Drive to the west, and 67th Street to the south. 
 11. **king louie** [music tony](https://www.youtube.com/watch?v=jQPrrYlDgDE) [I'm arrogant](https://www.youtube.com/watch?v=MtiXcl3-I4o) [chiraq Drillinois](https://www.youtube.com/watch?v=AA4YUC4GOhQ) [king louie story](https://www.youtube.com/watch?v=fPN6E8Coy4M)
 12. ![gang map](./assets/gang map.png)
-
+13. [odee perry reference](https://allrapnews.com/documentary/the-final-hours-of-odee-perry/)
 
 # 正文
 &nbsp; 芝加哥，drill的诞生之地，美国第三大城市，风城，犯罪之都。每年这里的凶杀案发生率甚至高过美
@@ -46,4 +46,4 @@ It is bounded by Lake Michigan to the east, 60th Street to the north, Martin Lut
 而警察的数量却只有1万3千左右。芝加哥被划分为了77个社区，而其中帮派的数量就多达至少70个，他们分布在各个社区之中，
 Drill 就起源于芝加哥南部的第42区，[woodlawn](https://en.wikipedia.org/wiki/Woodlawn,_Chicago)，
 woodlwan横跨第60街到第67街, 这里帮派林立，其中来自Dro city的年轻人，Pac Man，在2010年发布了一首单曲，名为《its a drill》这就是Drill一切的开端，[放歌](https://www.youtube.com/watch?v=mdOWY_eAhsU), 而传奇人物pac man也在发布该首单曲的同一年遭遇谋杀不幸离世, 年仅25岁， [king louie 采访](https://www.youtube.com/watch?v=H4KOX0XsIrM)，pac man“创造”了drill这个“词”，它代表杀戮与暴力，是芝加哥帮派生活的写实，但彼时drill音乐还未真正出现，直到2011年1月，同样来自dro city的年轻人King Louie，发布了个人首张mixtape，名为[《man up band up》](https://www.youtube.com/watch?v=mqh0O1ibAFE&t=231s), 这张mixtape融合了来自亚特兰大的制作人[Lex Luger](https://en.wikipedia.org/wiki/Lex_Luger_(record_producer))的beat style，Lex的制作风格偏向暗黑，以及极具攻击性，搭配上king Louie暴力的歌词，这标志着drill音乐真正意义上的诞生。[放歌]。</br>
-
+除了king louie，同年7月，来自parkway garden，wicc city的cheff keff和他的表哥Fredo Santana，以及Odee Perry共同拍摄了一支MV [《in this Bitch》](https://www.youtube.com/watch?v=MSnTzpMOoh4)，其中Odee Perry在拍摄完这支mv的第二个月就惨遭枪杀，起因是Odee枪杀了敌对帮派STL/EBT的成员Tooka，为了报复，STL/EBT的成员K.I在tooka生日的当天又干掉了Odee，为了纪念Odee，wicc city从此更名为O block，14年4月，来自oblock的king von又干掉了KI，。11年7月，chief keef发布了首张mixtape [the glory road](https://www.youtube.com/watch?v=c9Jw2KT0pZc&list=PLx_zo2P3FeHpCVDobcamAGzkV20_RGWP2), 这张mixtape由制作人DJ Keen亲自操刀，DJ Keen来自日本，21岁搬到了芝加哥，认识了年轻的keef，参与了早期drill音乐的发展，[放DJ keen intro](https://www.youtube.com/watch?v=f8X4K-o2Z18), 紧接着10月，keef发布了第二张mixtape，bang，这张mixtape依然是Dj Keen制作，首次融合了lex luger的制作风格，凭借这张mixtape, keef也开始展露头角。[放bang](https://www.youtube.com/watch?v=bEoDSTBY_Y4)
